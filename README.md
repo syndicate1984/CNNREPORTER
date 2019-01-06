@@ -5,6 +5,9 @@
 # My discord: https://discord.gg/e9kB9e7
 
 CNN REPORTER SCRIP
+
+# PHOTO:
+
 https://gyazo.com/02169576f8c52426f7cbb4974f2b2aa9
 
 https://gyazo.com/0e9f4da8155627ab6fa48f4dcdd61f18
